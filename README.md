@@ -1,2 +1,4 @@
-1. Luz Gabriela Castañeta
-   2. 
+ - Luz Gabriela Castañeta
+ -	Abraham Ichuta Tuco
+- Aracely Rosset Quiñajo Carrizales
+   -	-	Rodrigo Octavio Zanca Guerrero 
